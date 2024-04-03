@@ -1,0 +1,1 @@
+# Varianza-y-desviaci-n-est-ndar-muestral
